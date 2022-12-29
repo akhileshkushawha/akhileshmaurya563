@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @akhileshmaurya563
+- 👋 Hi, I’m akhilesh kumar kushawha 
 - 👀 I’m interested in git hub
 - 🌱 I’m currently learning ..skill and language.
 - 💞️ I’m looking to collaborate on ...
